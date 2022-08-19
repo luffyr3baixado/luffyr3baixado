@@ -1,5 +1,5 @@
 - 👋 Opa, aqui falaremos sobre o mito
-- 👀 Perfil focado para o Luffy mito luffy#2022#2023#2024#sempreluffy
+- 👀 Perfil focado para o Luffy mito #luffy#2022#2023#2024#sempreluffy
 
 Monkey era um garoto destemido que quando criança se inspirava em piratas, principalmente pelo estilo de vida que os piratas tinham. Ao conhecer Shanks, O Ruivo, Luffy vive pedindo para fazer parte de sua tripulação, algo que obviamente não é atendido por ele ser uma criança. É então que Luffy, como forma de provar sua coragem, fere o próprio rosto ganhando a famosa cicatriz abaixo do olho esquerdo.
 
